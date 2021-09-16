@@ -1,3 +1,3 @@
 # ok-
 Hannes o Lina
-imorn äre fredag :D
+imorn äre fredag :D!!!
